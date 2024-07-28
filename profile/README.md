@@ -1,4 +1,4 @@
-# Narración Gráfica de No Ficción 2023
+# Narración Gráfica de No Ficción 2024
 
 ### Descripción general
 
